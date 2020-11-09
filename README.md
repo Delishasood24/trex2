@@ -1,0 +1,2 @@
+# trex2
+MY FIRST GAME ! HOPE U LIKE IT!
